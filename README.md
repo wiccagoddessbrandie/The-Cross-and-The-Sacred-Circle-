@@ -3,7 +3,7 @@ Christianity and Witchcraft
 
 The Cross and the Sacred Circle
 
-📜 Mission Statement (example draft):
+📜 Mission Statement 
 
 > "To awaken and empower spiritual seekers through the sacred blend of Christ's love and earth-based wisdom. We teach the way of the Christian Witch, rooted in light, healing, and holy magic."
 
